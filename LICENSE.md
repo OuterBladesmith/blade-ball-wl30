@@ -1,4 +1,4 @@
-
+blade ball instant Script offers the most advanced blade ball Script, with one-hit kill and invisibility. Perfect for dominating any match.
 
 
 
